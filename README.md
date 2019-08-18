@@ -1,0 +1,1 @@
+# Photoshop-Open-Original-Image
